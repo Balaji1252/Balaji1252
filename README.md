@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **balajiram.n2020cse@sece.ac.in**
 
-- 📄 Know about my experiences [http://bitly.ws/zMZu](http://bitly.ws/zMZu)
+- 📄 Know about my experiences [https://bit.ly/41afJzX](https://bit.ly/41afJzX)
 
 - ⚡ Fun fact **Eat🍽️, Sleep😴, Code🧑🏻‍💻, Repeat🔁**
 
